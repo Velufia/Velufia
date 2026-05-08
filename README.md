@@ -2,8 +2,8 @@
 - Just a person trying not to complicate things and make them worse.
 
 ## Social 
-- Discord: `@Seluwia` 
-- Tiktok: `@Seluwia`
+- Discord: `@Velufia` 
+- Tiktok: `@Velufia`
   
 ## Note.
 - My discord account might vary depending on the age i've had the discord.
